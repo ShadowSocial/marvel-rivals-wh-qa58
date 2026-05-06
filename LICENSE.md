@@ -1,4 +1,4 @@
-
+Experience marvel rivals wh like never before with marvel rivals wh best Wall Detection: hero shield booster & hero ability enhancer, the #1 wh. Includes hero shield booster and
 
 
 
